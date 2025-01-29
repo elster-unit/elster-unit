@@ -3,5 +3,4 @@
 ᛝ  　  　     Please check my main 4 info  　  　     　 　  　    　  　   about me!
 
                    (⁠≧⁠▽⁠≦⁠)
-![laios-touden-dungeon-meshi]
 ![signalis-elster](https://github.com/user-attachments/assets/f5985c9e-3168-474b-899a-0e0726945c7a)
